@@ -51,5 +51,7 @@
 
 
 ## OUTPUT:
-![Uploading freepik-rent-a-car-poster-a3-20250524080431wkUG.png…]()
+![poster](https://github.com/user-attachments/assets/26b63113-0ccd-4b5e-b29c-780d591d39af)
+
+
 
