@@ -51,6 +51,8 @@
 
 
 ## OUTPUT:
-![Uploading Poster (2).png…]()
+![Poster (2)](https://github.com/user-attachments/assets/b2e37ae2-65f3-4064-94db-d8008c44ae43)
+
+
 
 
